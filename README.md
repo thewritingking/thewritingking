@@ -2,7 +2,7 @@
 
 Professional ghostwriter and author. I've written and published 113+ books under my own name and ghostwritten 54+ more for clients across technology, cybersecurity, healthcare, finance, and consulting. My clients include Fortune 50 executives, tech founders, business coaches, and a platinum-selling musician.
 
-I work under two identities, and this profile sits at the intersection of both.
+I work under three identities, and this profile sits at the intersection of them all.
 
 ## The Writing King — Ghostwriting Practice
 
