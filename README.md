@@ -23,10 +23,17 @@ My own books, across several series:
 - **Peacekeeper** — science fiction / space opera following Admiral Jessica Lang.
 - **Victorian Era Series** — reimaginings of classic Victorian adventure novels with restored, fully developed characters.
 
+## Photography
+
+[renaissancefaire.net](https://renaissancefaire.net)
+
+Documentary and event photographer with an archive of 980,000+ photographs — Renaissance faires, belly dance and dance events, and nature.
+
 ## Find me
 
 - Ghostwriting: [thewritingking.com](https://thewritingking.com)
 - Books: [masterofworlds.com](https://masterofworlds.com)
+- Photography: [renaissancefaire.net](https://renaissancefaire.net)
 - LinkedIn: [richardlowejr](https://www.linkedin.com/in/richardlowejr/)
 - Substack: [thewritingking.substack.com](https://thewritingking.substack.com)
 - BookBub: [richard-g-lowe-jr](https://www.bookbub.com/authors/richard-g-lowe-jr)
